@@ -6,7 +6,7 @@
 
 **Data da apresentação:** Quinta-feira, 12 de novembro de 2026 de 2026
 
-**Slides:** Abrir arquivo de slides
+**Slides:** [Abrir Slides](https://www.canva.com/design/DAHas62Gm68/jNhGbGaTQ4OgjEB-t1HBXA/edit?ui=eyJBIjp7fX0)
 
 ---
 
